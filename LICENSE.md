@@ -1,4 +1,4 @@
-#  
+#  stealth Script for aura ascension is the best aura ascension Script, featuring auto-heal and auto-collect. Safe and powerful for all your needs.
 
 
 
